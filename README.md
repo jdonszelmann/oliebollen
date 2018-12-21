@@ -1,2 +1,2 @@
 # oliebollen
-oliebollen are amaaaaaazin
+oliebollen are amaaaaaazing 
